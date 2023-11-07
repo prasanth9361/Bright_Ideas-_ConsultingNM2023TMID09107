@@ -1,1 +1,0 @@
-# Bright_Ideas-_ConsultingNM2023TMID09107
